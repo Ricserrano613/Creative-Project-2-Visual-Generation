@@ -1,10 +1,10 @@
 During our last class meet (Not counting the 1st year student presentation), I had worked with both Day and Melany to storyboard a mock video with the idea of Visual Generation in mind. We had came up with a pretty unique story that was only created because I could not stop looking at the fruit Day was eating. During storyboarding, I couldnt help but wonder how we could create a video where the fruit day was holding could be morphed into something more surreal, like if the tangerine in his hand had suddenly turned into a handful of tiny worms. 
 
 Later that week, I had came across a series of surrealist work and videos which furtherd my agenda of creating a similar video. Peter Smith had shown me the image of "The Persistence of Memory" by Salvador Dali and how Bizarre the image was. Although I had seen it plenty of times in popular media over the years, I never gave myself the chance to actually look at the painting: 
-![Alt text](../../../../../Downloads/the-persistence-of-memory-1931.jpg!Large.jpg)
+![Alt text](../../../../../Pictures/persistenceofmemory.jpg)
 
 I had then came across a video clip of a Dreamcast video game that I had not seen in years: LSD Dream Emulator. A 1998 Exploration game centered around exploring bizarre and surreal environments: 
-![Alt text](../../../../../Downloads/lsd.jpg)
+![Alt text](../../../../../Pictures/lsd.jpg)
 
 These bizarre elements of surrealism led me to question if I could make a video similar to this (in my own fashion) centered around a single object. I thought of the most simple thing I could at the time which was milk. If I could create a small video centered around milk and add concepts of surrealism to that, I can create a really cool/trippy one-minute experience. 
 
